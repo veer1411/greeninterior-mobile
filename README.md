@@ -1,1 +1,0 @@
-# greeninterior-mobile
